@@ -3,7 +3,7 @@ Best Smart Artificial intelligence Chat bot For Telegram Groups
 Click Below Picture To Open VChat Bot Owner Id...
 
 
-<p align="center"><a href="https://t.me/salaar_op"><img src="https://graph.org/file/fcf9e55bc943f50863b0c.jpg"></a></p>
+<p align="center"><a href="https://t.me/salaar_op"><img src="https://graph.org/file/3daaf032f7b5246d4a26c.jpg"></a></p>
 
 
 
